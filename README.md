@@ -1,1 +1,0 @@
-# MOBILEFIRST2c
